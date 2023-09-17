@@ -1,0 +1,1 @@
+I am just a finance student who (sometimes) create Rainmeter skins. I'm quite busy with work and my studies, so don't expect too much from me.

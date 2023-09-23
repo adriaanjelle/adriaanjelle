@@ -1,4 +1,4 @@
-I am just a finance student who (sometimes) create Rainmeter skins. I'm quite busy with work and my studies, so don't expect too much from me.
+I am just a finance student who (sometimes) creates Rainmeter skins. I'm quite busy with work and my studies, so don't expect too much from me.
 
 ## You can find me here
 
